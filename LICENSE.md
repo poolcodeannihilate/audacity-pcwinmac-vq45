@@ -1,4 +1,4 @@
-# 
+# Premium Audacity plantillas para Mac OS | Personalizado Audacity plantillas para PC Windows. Con compresión y herramientas de colaboración — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
